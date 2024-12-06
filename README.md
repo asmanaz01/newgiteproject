@@ -1,1 +1,1 @@
-#assala mo
+#assalamo alikum
